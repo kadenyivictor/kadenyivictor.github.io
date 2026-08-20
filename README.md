@@ -1,1 +1,0 @@
-# kadenyivictor.github.io
